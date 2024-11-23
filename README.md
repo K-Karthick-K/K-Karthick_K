@@ -1,4 +1,4 @@
-# Hi, I'm [Your Name] 👋
+# Hi, I'm Karthick K👋
 
 ### Aspiring Data Analyst | Passionate About Business Insights and Data-Driven Decisions
 
